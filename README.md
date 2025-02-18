@@ -1,4 +1,7 @@
-![61de69d7bc23d863afd54df885dfe64b](https://github.com/user-attachments/assets/f27dd0fa-8408-4aa1-8d6a-e1595652e940)
+
+![61de69d7bc23d863afd54df885dfe64b](https://github.com/user-attachments/assets/203ce803-a9f7-448a-9e5e-7fb3f3a2cf4e)
+
+
 🎁 Sorteo de Amigo Secreto
 📌 Índice
 
